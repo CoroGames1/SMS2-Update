@@ -1,1 +1,1 @@
-# SMS2-Update
+# Super Mario Storys 2 Update
